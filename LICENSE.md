@@ -1,4 +1,4 @@
-
+Experience minecraft like never before with rare Script for minecraft, the #1 Script. Includes auto-upgrade and god mode for unbeatable performance.
 
 
 
